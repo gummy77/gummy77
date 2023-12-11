@@ -1,5 +1,5 @@
-### AAAAAAAAAAAAAAAAHHHHH
+### Hewwo
 hi im liz <br>
-i program stuff i guess 
+i program stuff!!
 
 love you <3
