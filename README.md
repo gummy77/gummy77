@@ -1,5 +1,5 @@
-### Hewwo
+### Helo!
 hi im liz <br>
 i program stuff!!
 
-love you <3
+hope you like my stuff
